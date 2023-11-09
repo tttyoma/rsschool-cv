@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tttyoma.github.io/rsschool-cv/cv
